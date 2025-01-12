@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TcTech85
-- 👀 I’m interested in IT, Maths, Taekwondo, Embroidery, fishing
+- 👀 I’m interested in IT, Maths, Taekwondo, yoga, Embroidery and fishing.
 - 🌱 I’m currently learning language
 - 💞️ I’m looking to collaborate on IT
 - 📫 How to reach me at corduk.tech@gmail.com

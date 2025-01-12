@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TcTech85
+- 👋 Hi, I’m issy
 - 👀 I’m interested in IT, Maths, Taekwondo, yoga, Embroidery and fishing.
 - 🌱 I’m currently learning language
 - 💞️ I’m looking to collaborate on IT
